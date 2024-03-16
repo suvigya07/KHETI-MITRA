@@ -1,1 +1,1 @@
-# KHETI-MITRA
+author - suvigya yadav
